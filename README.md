@@ -13,4 +13,4 @@ Flappy Bird in roblox.
 7. Press "Play" :O
 
 ## Contact
-@v8m79
+@v8m79 (ROBLOX) / @lama1k (DISCORD)
